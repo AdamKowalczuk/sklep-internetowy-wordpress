@@ -1,0 +1,1 @@
+# sklep-internetowy-wordpress
